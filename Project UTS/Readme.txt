@@ -1,0 +1,1 @@
+kak young buka file index.html terlebih dahulu yaa
